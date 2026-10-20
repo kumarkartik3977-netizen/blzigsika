@@ -1,3 +1,2 @@
 # blzigsikak 
 kartik kumar
-katik
